@@ -1,0 +1,57 @@
+# V.W.P – 幻界
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+まやかしの記憶とアイデンティティ
+甘い嘘が刻みこまれた Sweet Sweet World
+結果 Lose Lose　それは　消失の合図
+限界突破の果てにある Game of Life
+感じる生はリアル
+愛すべきFakeとLiar
+真実　守るための　神がかりのライド
+幻が居場所になった
+現実を取り戻すんだ
+正真正銘　これが最後　さあ始めよう
+「世界を救いたい」
+「世界を壊したい」
+(Shake it like a fate)
+ビリビリ来た　これ God Breath you
+(Shake it like a fate)
+狂って躁になって Always Trouble
+(Fight it Fight it)
+譲れないものがある
+(Shake it like a fate)
+ドクンときた　決意はTruth
+Last of turn　幻真の奇跡よ　導いて
+All our sins grieve well
+Everything alt
+We shoot for reason
+We can't plaster fight, you
+燃える　鼓動　叫ぶ　祈り
+うつし世に重ねてく　ノイズ　ノイズ　ノイズ
+孤独だけが鳴らしていた Mute Mute Cry
+そして Shout Shout Soul　リブートしなきゃ
+運命線を越えていく Game of Life
+歪んだ視界　フラッター Breaking...World
+ズタズタでも響くハーモニー
+運命(さだめ)変える　覚醒のライド
+傷だらけ　本能のプライド
+正真正銘　これが最後　さあ始めよう
+「君を救いたい」
+「君と生きたい」
+(Make Some Noise！)
+ビリビリ来た　これ God Breath You
+(Shake it like a fate)
+狂って躁になって Always Trouble
+(Fight it Fight it)
+何度でも立ち上がれ
+(Shake it like a fate)
+グラッときたそれ Clean Clean Hit
+Endless hout　絶望　切り裂いて　明日を撃て
+All our sins grieve well
+Everything alt
+We shoot for reason
+We can't plaster fight, you
+燃える　鼓動　叫ぶ　祈り
+```
